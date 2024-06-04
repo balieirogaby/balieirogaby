@@ -1,16 +1,15 @@
-## Hi there 👋
+## seja bem vindo ao meu perfil 💟
 
-<!--
-**balieirogaby/balieirogaby** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Gabriella
 
-Here are some ideas to get you started:
+- Eu gosto do meu vidinha
+- Eu amo todos os bichinhos
+- Ultilizo esse espaço para a minha organização e compartilhamento dos meus projetos desenvolvidos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Você pode entrar em contato comigo 📬
+lbeieia537@gamil.com
+
+@beieia_537
+
+
+![](https://media1.tenor.com/m/w1KtVQFEH1IAAAAC/golden-retriever-border-collie.gif)
